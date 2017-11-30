@@ -1,1 +1,1 @@
-# Exo_gitFlow
+Lacroix Samuel
